@@ -1,1 +1,1 @@
-My first readme
+Master na bastard 
